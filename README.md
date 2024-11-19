@@ -3,6 +3,7 @@
 
 <p>Social Stuff:</p>
 <p>VvSeanGTvV#2295 <strong>Discord</strong></p>
+
 [Youtube](https://www.youtube.com/@vvseangtvv)
 
 <!---
